@@ -1,4 +1,4 @@
-
+Download advanced Scripts for king legacy for king legacy, the best script available, featuring auto-collect and unlimited stamina. This powerful tool ensures you have the upper
 
 
 
